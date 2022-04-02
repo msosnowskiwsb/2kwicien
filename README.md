@@ -1,2 +1,6 @@
 # 2kwicien
-TAGI
+
+
+
+NEW LINExz
+xzx
